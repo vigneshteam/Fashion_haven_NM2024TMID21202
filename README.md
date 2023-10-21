@@ -3,8 +3,6 @@ Dashboard link - https://drive.google.com/file/d/1sslCOKUZbLJITHBkfgmqekFg4xUh2f
 
 Final out put - https://drive.google.com/file/d/1sZh4Ek5nFKvFlWtBXi__kIRVu_ZTAAvC/view?usp=drivesdk
 
-Story -https://drive.google.com/file/d/1sY5jGg4NA-tRLawqdod2ADWh0RJoRiVK/view?usp=drivesdk
+Story - https://drive.google.com/file/d/1sY5jGg4NA-tRLawqdod2ADWh0RJoRiVK/view?usp=drivesdk
 
-Empathy map - https://drive.google.com/file/d/1sdeZoM_g8D9Mu8Ral42mN6IDrZijCQTP/view?usp=drivesdk
-
-Brainstorming idea -https://drive.google.com/file/d/1spho-Sf7NfS_kfy-XLLSJCnAy75kbEPL/view?usp=drivesdk 
+video link - https://drive.google.com/file/d/1vGi34cfmnDRV9nBDQ3aKAHFugYgfo0-t/view?usp=drivesdk
